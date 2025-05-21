@@ -9,6 +9,6 @@ If you have experience with:
 
 And you live in the Nashville, TN area lets have a chat! 
 
-Reach out to chris@treversellc.com 
+Reach out to chris.ried@treversellc.com 
 
 Check out [A-Stock](http://www.a-stock.bid)
